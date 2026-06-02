@@ -1,4 +1,4 @@
-# 
+# Personalizado Affinity Designer filtros para Mac OS | VIP Affinity Designer filtros para PC Windows. Con fuentes variables y guías de perspectiva — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
